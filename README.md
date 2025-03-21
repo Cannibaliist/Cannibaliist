@@ -8,7 +8,7 @@
 <p align="center">:cut_of_meat:</p>
   <h6 align="center">
     
-![profileviews](https://komarev.com/ghpvc/?username=DutchCannibalLinde&color=Red)
+![profileviews](https://komarev.com/ghpvc/?username=DutchCannibalLinde&color=red)
 
 <h6 align="center">
 Rick / Dutch  ,  C+H freely unless otherwise stated  ,  No DNI: I block freely
