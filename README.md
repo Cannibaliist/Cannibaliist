@@ -5,7 +5,8 @@
 <h6 align="center">
   
 [@cheesewezz](https://www.github.com/cheesewezz) & [@Welcome2Paradise](https://www.github.com/Welcome2Paradise)
-<p align="center">:cut_of_meat:</p>
+<p align="center">
+  <img src="https://files.catbox.moe/ruxuqg.webp"</p>
   <h6 align="center">
     
 ![profileviews](https://komarev.com/ghpvc/?username=DutchCannibalLinde&color=red)
