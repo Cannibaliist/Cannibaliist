@@ -7,7 +7,7 @@
   
 <h6 align="center">
   
-[@cheesewezz](https://www.github.com/cheesewezz) & [@Welcome2Paradise](https://www.github.com/Welcome2Paradise)
+Heteroverheels for you. [@Welcome2Paradise](https://www.github.com/Welcome2Paradise)
 <p align="center">
   <img src="https://files.catbox.moe/ruxuqg.webp"</p>
   <h6 align="center">
