@@ -15,7 +15,7 @@ Heteroverheels for you. [@Welcome2Paradise](https://www.github.com/Welcome2Parad
 ![profileviews](https://komarev.com/ghpvc/?username=DutchCannibalLinde&color=red)
 
 <h6 align="center">
-Usually Dni unless: Friend / party / mutual, same interests, or Toki .  C+H freely unless otherwise stated
+Usually Dni unless: Friend / party / mutual, same interests, or Morty .  C+H freely no matter what unless otherwise stated
   
 [Spacehey](https://spacehey.com/dutchcanniballinde) . [Rentry](https://rentry.co/DutchCannibalLinde)
   
