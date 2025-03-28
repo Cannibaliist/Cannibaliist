@@ -1,9 +1,7 @@
 <p align="center">
-<img src="https://files.catbox.moe/2zfbze.gif"</p>
+  <img src="https://files.catbox.moe/01ikib.png"</p>
 
-<p align="center">
-<img src="https://files.catbox.moe/hfubwh.png"</p>
-<h6 align="center">"When I'm Gone, They'll just find another monster. They have to, Because they have to justify their wages."</h6>
+<h6 align="center">"I'm a scientist; because I invent, transform, create, and destroy for a living, and when I don't like something about the world, I change it."</h6>
   
 <h6 align="center">
   
