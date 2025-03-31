@@ -15,8 +15,6 @@ Heteroverheels for you. [@Welcome2Paradise](https://www.github.com/Welcome2Parad
 <h6 align="center">
 Usually Dni unless: Friend / party / mutual, same interests, or Morty .  C+H freely no matter what unless otherwise stated
   
-[Spacehey](https://spacehey.com/dutchcanniballinde) . [Rentry](https://rentry.co/DutchCannibalLinde)
-  
 <p align="center">
   
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=o53itqkavcf4yo4ou5kliv7hd&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=a90404&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
