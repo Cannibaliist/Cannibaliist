@@ -14,6 +14,10 @@ Heteroverheels for you. [@Welcome2Paradise](https://www.github.com/Welcome2Parad
 
 <h6 align="center">
 Usually Dni unless: Friend / party / mutual, same interests, or Morty .  C+H freely no matter what unless otherwise stated
+
+  <h6 align="center">
+    
+[rentry , not main](https://rentry.co/dutchcanniballinde)
   
 <p align="center">
   
