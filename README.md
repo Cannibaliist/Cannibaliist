@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://files.catbox.moe/v28f9a.webp"</p>
+  <img src="https://files.catbox.moe/iwoxv6.avif"</p>
 
 <h6 align="center">"I'm a scientist; because I invent, transform, create, and destroy for a living, and when I don't like something about the world, I change it."</h6>
   
