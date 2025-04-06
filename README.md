@@ -5,7 +5,7 @@
   
 <h6 align="center">
   
-Heteroverheels for you. [@Welcome2Paradise](https://www.github.com/Welcome2Paradise)
+I'll Be Your Butcher! [@Welcome2Paradise](https://www.github.com/Welcome2Paradise)
 <p align="center">
   <img src="https://files.catbox.moe/ruxuqg.webp"</p>
   <h6 align="center">
