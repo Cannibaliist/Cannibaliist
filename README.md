@@ -1,7 +1,7 @@
 <p align="center">
   <img src="https://files.catbox.moe/iwoxv6.avif"</p>
 
-<h6 align="center">"I'm a scientist; because I invent, transform, create, and destroy for a living, and when I don't like something about the world, I change it."</h6>
+<h6 align="center">(For further behavioral instructions, consult the nearest strip club and/or liquor store. Thank you, and enjoy yourself.)</h6>
   
 <h6 align="center">
   
