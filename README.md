@@ -17,7 +17,7 @@ Usually Dni unless: Friend / party / mutual, same interests, or Morty .  C+H fre
 
   <h6 align="center">
     
-[rentry , not main](https://rentry.co/dutchcanniballinde)
+[Main Rentry](https://rentry.co/6InchesIn)
   
 <p align="center">
   
