@@ -1,6 +1,8 @@
 <p align="center">
+ <img src="https://files.catbox.moe/nly3t9.jpg"</p>
 
-![](https://files.catbox.moe/y3ht8m.gif)
+<p align="center">
+ <img src="https://files.catbox.moe/o9mmb2.webp"</p>
 
 
 <h6 align="center">I want to hold you close, soft breath, beating heart. As I whisper in your ear, "I want to fucking tear you apart"</h6>
@@ -25,6 +27,9 @@ Usually Dni unless: Friend / party / mutual, same interests, or Morty .  C+H fre
   
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=o53itqkavcf4yo4ou5kliv7hd&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=a90404&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
+
+<p align="center">
+ <img src="https://files.catbox.moe/7xoo8w.jpg"</p>
 ___
 
 <p align="center">
