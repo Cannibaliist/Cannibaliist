@@ -1,11 +1,13 @@
 <p align="center">
-  <img src="https://files.catbox.moe/iwoxv6.avif"</p>
 
-<h6 align="center">(For further behavioral instructions, consult the nearest strip club and/or liquor store. Thank you, and enjoy yourself.)</h6>
+![](https://files.catbox.moe/y3ht8m.gif)
+
+
+<h6 align="center">I want to hold you close, soft breath, beating heart. As I whisper in your ear, "I want to fucking tear you apart"</h6>
   
 <h6 align="center">
   
-I'll Be Your Butcher! [@Welcome2Paradise](https://www.github.com/Welcome2Paradise)
+Baby you look so pretty in a casket. [@Welcome2Paradise](https://www.github.com/Welcome2Paradise)
 <p align="center">
   <img src="https://files.catbox.moe/ruxuqg.webp"</p>
   <h6 align="center">
