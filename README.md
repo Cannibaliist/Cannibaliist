@@ -15,7 +15,7 @@ Baby you look so pretty in a casket. [@Welcome2Paradise](https://www.github.com/
 ![profileviews](https://komarev.com/ghpvc/?username=DutchCannibalLinde&color=red)
 
 <h6 align="center">
-Usually Dni unless: Friend / party / mutual, same interests, or Morty .  C+H freely no matter what unless otherwise stated
+Usually Dni unless: Friend / party / mutual, I do, or Ty .  C+H freely no matter what unless otherwise stated
 
   <h6 align="center">
     
