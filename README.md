@@ -1,6 +1,6 @@
 
 <p align="center">
- <img src="https://files.catbox.moe/o9mmb2.webp"</p>
+ <img src="https://files.catbox.moe/8hxahy.webp"</p>
 
 
 <h6 align="center">I want to hold you close, soft breath, beating heart. As I whisper in your ear, "I want to fucking tear you apart"</h6>
