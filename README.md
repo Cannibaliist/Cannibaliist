@@ -21,7 +21,7 @@ Baby you look so pretty in a casket. [@Welcome2Paradise](https://www.github.com/
 Usually Dni unless: Friend / party / mutual, I do, or Ty .  C+H freely no matter what unless otherwise stated
 
  <h6 align="center">
-I tend to hide or cover my boyfriend/friends (the ones @ed) from people. Don't get offended or harass me if I am doing so. I'm also very suspicous of people idk.
+I tend to hide or cover my boyfriend/friends (the ones @ed) from people. Don't get offended or harass me if I am doing so.
 
 
   <h6 align="center">
