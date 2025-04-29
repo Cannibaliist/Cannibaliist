@@ -1,32 +1,6 @@
-<p align="center">
- <img src="https://files.catbox.moe/vvf9t1.png"</p>
-
-
-<p align="center">
- <img src="https://files.catbox.moe/o9mmb2.webp"</p>
-
-
-<h6 align="center">I want to hold you close, soft breath, beating heart. As I whisper in your ear, "I want to fucking tear you apart"</h6>
-  
-<h6 align="center">
-  
-Baby you look so pretty in a casket. [@Welcome2Paradise](https://www.github.com/Welcome2Paradise)
-<p align="center">
-  <img src="https://files.catbox.moe/ruxuqg.webp"</p>
-  <h6 align="center">
+remaking
     
-![profileviews](https://komarev.com/ghpvc/?username=DutchCannibalLinde&color=red)
-
-<h6 align="center">
-Usually Dni unless: Friend / party / mutual, I do, or Ty .  C+H freely no matter what unless otherwise stated
-
- <h6 align="center">
-I tend to hide or cover my boyfriend & friends (the ones @ed) from people. Don't get offended or harass me if I am doing so.
-
-
-  <h6 align="center">
-    
-[Main Rentry](https://rentry.co/6InchesIn)
+![profileviews](https://komarev.com/ghpvc/?username=6InchesIn&color=red)
   
 <p align="center">
   
