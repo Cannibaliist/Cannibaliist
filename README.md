@@ -1,17 +1,17 @@
 <h6 align="center">
 
-![profileviews](https://komarev.com/ghpvc/?username=6InchesIn&color=yellow)
+![profileviews](https://komarev.com/ghpvc/?username=6InchesIn&color=green)
 
 <h6 align="center">
-"Believe me like a God. I'll betray you like a Man."
+"You act like prey, but you're a predator."
 
-[My scientist, & Muse.](https://github.com/Welcome2Paradise)
+[Thank you C:](https://github.com/Welcome2Paradise)
 
-![](https://files.catbox.moe/a560rq.png)
+![](https://files.catbox.moe/1l2ywq.png)
 
 <h6 align="center">
 
-[I hesitated. “I have missed you,” I replied. He smiled.](https://guns.lol/6inchesin)
+[The Jerrick Trap](https://guns.lol/6inchesin)
   
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=o53itqkavcf4yo4ou5kliv7hd&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=a90404&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
