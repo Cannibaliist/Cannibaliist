@@ -5,13 +5,13 @@
 <h6 align="center">
 "You act like prey, but you're a predator."
 
-[Thank you C:](https://github.com/Welcome2Paradise)
+[Torture You Till Dawn](https://github.com/Welcome2Paradise)
 
-![](https://files.catbox.moe/1l2ywq.png)
+![](https://files.catbox.moe/kuuuo8.webp)
 
 <h6 align="center">
 
-[The Jerrick Trap](https://guns.lol/6inchesin)
+[Kill Your "Human Nature."](https://guns.lol/6inchesin)
   
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=o53itqkavcf4yo4ou5kliv7hd&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=a90404&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
