@@ -5,13 +5,13 @@
 <h6 align="center">
 "Fuck Your Measly Lungs, Your Pain Will End In Suffocation."
 
-[Torture You At Dawn, Your Pain Will Bring The Resolution](https://github.com/Welcome2Paradise)
+[Torture You At Dawn](https://github.com/Welcome2Paradise)
 
 ![](https://files.catbox.moe/kuuuo8.webp)
 
 <h6 align="center">
 
-[Fuck The Ones You Love, This Shall Be Your Repercussion](https://guns.lol/6inchesin)
+[Your Pain Will Bring The Resolution](https://guns.lol/6inchesin)
   
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=o53itqkavcf4yo4ou5kliv7hd&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=a90404&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
