@@ -3,7 +3,7 @@
 ![profileviews](https://komarev.com/ghpvc/?username=6InchesIn&color=green)
 
 <h6 align="center">
-"You act like prey, but you're a predator."
+"Fuck Your Weasly Lungs, Your Pain May end in Suffocation."
 
 [Torture You Till Dawn](https://github.com/Welcome2Paradise)
 
