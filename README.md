@@ -1,13 +1,13 @@
 <h6 align="center">
 
-![profileviews](https://komarev.com/ghpvc/?username=6InchesIn&color=green)
+![profileviews](https://komarev.com/ghpvc/?username=6InchesIn&color=blue)
 
 <h6 align="center">
 "Fuck Your Measly Lungs, Your Pain Will End In Suffocation."
 
 [Torture You At Dawn](https://github.com/Welcome2Paradise)
 
-![](https://files.catbox.moe/kuuuo8.webp)
+![](https://files.catbox.moe/pmmhie.jpg)
 
 <h6 align="center">
 
