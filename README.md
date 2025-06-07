@@ -1,6 +1,6 @@
 <h6 align="center">
 
-![profileviews](https://komarev.com/ghpvc/?username=6InchesIn&color=blue)
+![profileviews](https://komarev.com/ghpvc/?username=6InchesIn&color=red)
 
 <h6 align="center">
 "I have the thing you love, but the need in me is way too much"
