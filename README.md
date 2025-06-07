@@ -3,15 +3,15 @@
 ![profileviews](https://komarev.com/ghpvc/?username=6InchesIn&color=blue)
 
 <h6 align="center">
-"Fuck Your Measly Lungs, Your Pain Will End In Suffocation."
+"I have the thing you love, but the need in me is way too much"
 
-[Torture You At Dawn](https://github.com/Welcome2Paradise)
+[If I open wide, One of us may get lost inside](https://github.com/Welcome2Paradise)
 
-![](https://files.catbox.moe/pmmhie.jpg)
+![](https://files.catbox.moe/gzbbp3.png)
 
 <h6 align="center">
 
-[Your Pain Will Bring The Resolution](https://guns.lol/6inchesin)
+[Me or you, one of us is going to.. Need. To. Die](https://guns.lol/6inchesin)
   
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=o53itqkavcf4yo4ou5kliv7hd&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=a90404&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
