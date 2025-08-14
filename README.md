@@ -5,7 +5,7 @@
 <h6 align="center">
 "The Heart Goes To Heaven, The Head Goes To Hell"
 
-[About You ;; Exploitopia](https://github.com/Welcome2Paradise)
+![](https://files.catbox.moe/msqrln.webp)
 
 <h6 align="center">
 
