@@ -3,7 +3,7 @@
 ![profileviews](https://komarev.com/ghpvc/?username=6InchesIn&color=red)
 
 <h6 align="center">
-"The Heart Goes To Heaven, The Head Goes To Hell"
+"What do you see, Will?"
 
 
 ![](https://files.catbox.moe/msqrln.webp)
