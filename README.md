@@ -12,18 +12,19 @@
 
 <h6 align="center">
 
+![](https://files.catbox.moe/6e3bj5.gif)
+
   
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=o53itqkavcf4yo4ou5kliv7hd&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=a90404&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
 
-___
-
-
+<details>
+  <summary> My Collection. </summary>
 
 <p align="center">
 
-![](https://files.catbox.moe/o57bkh.png) ![](https://files.catbox.moe/e77ene.jpg) ![](https://files.catbox.moe/8keezu.jpg) ![](https://files.catbox.moe/ym9m5j.jpg) ![](https://files.catbox.moe/rxov09.webp) ![](https://files.catbox.moe/v9hnth.jpg) ![](https://files.catbox.moe/wioxl1.gif) ![](https://files.catbox.moe/uz0t8c.png) ![](https://files.catbox.moe/ip8d4k.webp) ![](https://files.catbox.moe/3f6wlv.webp) ![](https://files.catbox.moe/fkjgmn.jpg) ![](https://files.catbox.moe/u9npr1.gif) ![](https://files.catbox.moe/gtptn9.png) ![](https://files.catbox.moe/12bl7p.png) ![](https://files.catbox.moe/i527en.png) ![](https://files.catbox.moe/n9njlj.png) ![](https://files.catbox.moe/qvsptb.png) ![](https://files.catbox.moe/nw7eu6.jpg) ![](https://files.catbox.moe/qic2oo.png) ![](https://files.catbox.moe/cluug5.jpg) ![](https://files.catbox.moe/j4znad.png) ![](https://files.catbox.moe/h88fxb.png)
+![](https://files.catbox.moe/o57bkh.png) ![](https://files.catbox.moe/e77ene.jpg) ![](https://files.catbox.moe/8keezu.jpg) ![](https://files.catbox.moe/ym9m5j.jpg) ![](https://files.catbox.moe/rxov09.webp) ![](https://files.catbox.moe/v9hnth.jpg) ![](https://files.catbox.moe/wioxl1.gif) ![](https://files.catbox.moe/uz0t8c.png) ![](https://files.catbox.moe/ip8d4k.webp) ![](https://files.catbox.moe/3f6wlv.webp) ![](https://files.catbox.moe/fkjgmn.jpg) ![](https://files.catbox.moe/u9npr1.gif) ![](https://files.catbox.moe/gtptn9.png) ![](https://files.catbox.moe/12bl7p.png) ![](https://files.catbox.moe/i527en.png) ![](https://files.catbox.moe/n9njlj.png) ![](https://files.catbox.moe/qvsptb.png) ![](https://files.catbox.moe/nw7eu6.jpg) ![](https://files.catbox.moe/qic2oo.png) ![](https://files.catbox.moe/cluug5.jpg) ![](https://files.catbox.moe/j4znad.png) ![](https://files.catbox.moe/h88fxb.png) ![](https://files.catbox.moe/pcnj29.gif) ![](https://files.catbox.moe/ywdkc2.png) ![](https://files.catbox.moe/308yxi.png) ![](https://files.catbox.moe/5r5zuv.gif) ![](https://files.catbox.moe/gokvih.png) ![](https://files.catbox.moe/ia8eiq.jpg) ![](https://files.catbox.moe/zy0nu5.png) ![](https://files.catbox.moe/9wmx5a.png) ![](https://files.catbox.moe/u2erhx.png) ![](https://files.catbox.moe/lfws9w.png) ![](https://files.catbox.moe/d7nf11.png) ![](https://files.catbox.moe/ktycnk.png) ![](https://files.catbox.moe/nxpqut.png) ![](https://files.catbox.moe/ug691v.gif) ![](https://files.catbox.moe/8nhk5f.gif) ![](https://files.catbox.moe/srje2m.png) ![](https://files.catbox.moe/meijl4.png) ![](https://files.catbox.moe/ymjnnp.png) ![](https://files.catbox.moe/607hky.png) ![](https://files.catbox.moe/7okk8s.pnj) ![](https://files.catbox.moe/wagwrk.gif) ![](https://files.catbox.moe/g49uci.png) 
 
 <p align="center">
 
