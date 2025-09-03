@@ -3,14 +3,6 @@
 ![profileviews](https://komarev.com/ghpvc/?username=6InchesIn&color=red)
 
 <h6 align="center">
-"What do you see, Will?"
-
-
-![](https://files.catbox.moe/msqrln.webp)
-![](https://files.catbox.moe/rr3n5d.jpg)
-
-
-<h6 align="center">
 
 ![](https://files.catbox.moe/6e3bj5.gif)
 
