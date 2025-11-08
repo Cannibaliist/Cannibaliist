@@ -9,7 +9,7 @@
 ![](https://files.catbox.moe/6e3bj5.gif)
 
 
-[warning doc for rdr fandom about user ollie ihopemyabsencehauntsyou on git](https://ollie59845958.straw.page/)
+[warning doc about user ollie / ihopemyabsencehauntsyou on git](https://ollie59845958.straw.page/)
 
   
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=o53itqkavcf4yo4ou5kliv7hd&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=a90404&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
