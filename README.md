@@ -1,10 +1,10 @@
 <h6 align="center">
 
-![profileviews](https://komarev.com/ghpvc/?username=6InchesIn&color=red)
+![profileviews](https://komarev.com/ghpvc/?username=6InchesIn&color=557F7F)
 
 <h6 align="center">
 
-![](https://files.catbox.moe/h3pin7.png)
+![](https://files.catbox.moe/pea05c.png)
 
 ![](https://files.catbox.moe/6e3bj5.gif)
 
