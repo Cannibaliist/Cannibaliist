@@ -1,6 +1,6 @@
 <h6 align="center">
 
-![🍼](https://komarev.com/ghpvc/?username=6InchesIn&color=8D5F8C)
+![🍼](https://komarev.com/ghpvc/?username=6InchesIn&color=8D5F8C&label=🍼&style=plastic)
 
 <h6 align="center">
 
