@@ -6,6 +6,8 @@
 
 ![](https://files.catbox.moe/8kv3n9.webp)
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Great+Vibes&size=26&pause=1000&color=E583DF&center=true&vCenter=true&width=429&height=40&lines=Franco++%22Baby%22++Barbi)](https://git.io/typing-svg)
+
 ![](https://files.catbox.moe/56dv4d.png)
 
 ![](https://files.catbox.moe/n6omkh.webp)
